@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Schuwevsk!!!
+- 👀 I’m interested in science, technology and engenner. 
+- 🌱 I’m currently learning programmation.
+- 💞️ I’m looking to collaborate on friends.
+- 🎮 I like videogames, animes and study.
